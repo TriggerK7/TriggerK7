@@ -1,7 +1,5 @@
-## Hi there 👋
+## Wassup my G's 👋
 ig: **teixeira_40**
-
-wassup my G's 
 
 **life is to short to drive boring cars**
 

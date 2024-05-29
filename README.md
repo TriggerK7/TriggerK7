@@ -3,6 +3,8 @@ ig: **teixeira_40**
 
 wassup my G's 
 
+**life is to short to drive boring cars**
+
 <!--
 **TriggerK7/TriggerK7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
